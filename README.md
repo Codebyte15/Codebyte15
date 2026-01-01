@@ -29,7 +29,7 @@ _For collaboration, projects, or anything else!_ 😊
 
 ## 📫 HOW TO REACH ME
 - **Instagram:** [@astro_moinak](https://instagram.com/astro_moinak)
-- **Reddit** [MountainCross15]([https://reddit.com/MountainCross15](https://www.reddit.com/user/MountainCross15/))
+- **Reddit:** [u/MountainCross15](https://www.reddit.com/user/MountainCross15/)
 
 ---
 
