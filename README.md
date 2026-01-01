@@ -29,8 +29,6 @@ _For collaboration, projects, or anything else!_ 😊
 
 ## 📫 HOW TO REACH ME
 - **Instagram:** [@astro_moinak](https://instagram.com/astro_moinak)
-- **Reddit:** [u/MountainCross15](https://www.reddit.com/user/MountainCross15/)
-
 ---
 
 ## 😄 PRONOUNS
